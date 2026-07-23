@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时25分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国家文化数字化战略落地，文化资源线上共享覆盖全民</h3><br><p>磷肥价格单月上涨8%，磷化工龙头盈利改善。<br><br> | 来源：<code>https;//jrszbnbabsgqmf.com.cn
+</code></p><br><br><h3>地方国资战略入股氢能燃料电池标的，助力商用车推广落地</h3><br><p>义务教育优质均衡创建推进，千个县区通过国家级评估。<br><br> | 来源：<code>https;//jrszbnbabsgqmf.org.cn
+</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>两融余额创阶段新高，券商杠杆业务标的异动。<br><br> | 来源：<code>https;//jrszbnbabsgqmf.cn
+</code></p><br><br><h3>郑钦文闯入温网女单决赛，创中国网球选手大满贯单打最佳战绩</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>https;//jrszbnbaddklq.com.cn
+</code></p><br><br><h3>全国运动康复中心超万家，运动损伤诊疗体系逐步完善</h3><br><p>神州高铁放量上涨3.7%，轨道交通运维业务增长。<br><br> | 来源：<code>https;//jrszbnbaddklq.org.cn
+</code></p><br><br><h3>思源电气电网设备出口高增，前三季度业绩预增超30%</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>https;//jrszbnbaddklq.cn
+</code></p><br><br><h3>拓普集团放量拉升6.7%，汽车零部件订单超预期</h3><br><p>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。<br><br> | 来源：<code>https;//jrszbnbamfgq.com.cn
+</code></p><br><br><h3>牧原股份养殖成本下降，单季业绩预告环比扭亏</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>https;//jrszbnbamfgq.org.cn
+</code></p><br><br><h3>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米</h3><br><p>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度。<br><br> | 来源：<code>https;//jrszbnbamfgq.cn
+</code></p><br><br><h3>全国分布式能源装机规模突破12亿千瓦，就地就近消纳</h3><br><p>当升科技正极材料海外布局：高镍正极的全球份额扩张。<br><br> | 来源：<code>https;//jrszbnbazxgkmfzb.com.cn
+</code></p><br><br><h3>全国高血压患者管理人数突破1亿人，规范管理率达90%</h3><br><p>QFII集中调研国产EDA企业，全流程工具突破引关注。<br><br> | 来源：<code>https;//jrszbnbazxgkmfzb.org.cn
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大。<br><br> | 来源：<code>https;//jrszbnbazxgkmfzb.cn
+</code></p><br><br><h3>黎以罗马谈判达成阶段性协议，以军启动南部黎巴嫩撤军</h3><br><p>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大。<br><br> | 来源：<code>https;//jrszbsjb.com.cn
+</code></p><br><br><h3>上半年高技术产业投资同比增长12.5%，产业升级步伐加快</h3><br><p>恒瑞医药创新药放量，前三季度业绩预增超40%。<br><br> | 来源：<code>https;//jrszbsjb.org.cn
+</code></p><br><br><h3>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径</h3><br><p>5年期LPR超预期下调，地产链迎来全面行情催化。<br><br> | 来源：<code>https;//jrszbsjb.cn
+</code></p><br><br><h3>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>https;//jrszbwcjzbnbaz.com.cn
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https;//jrszbwcjzbnbaz.org.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>虚拟电厂建设导则出台，虚拟电厂标的全线拉升。<br><br> | 来源：<code>https;//jrszbwcjzbnbaz.cn
+</code></p><br><br><h3>故宫博物院年接待观众突破2000万人次，文创产品营收超20亿</h3><br><p>长城国家文化公园建设完工，沿线游览步道贯通超万公里。<br><br> | 来源：<code>https;//kmfzbqs.com.cn
+</code></p><br><br><h3>体育赛事与全民健身（100条）</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>https;//kmfzbqs.org.cn
