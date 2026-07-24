@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑</h3><br><p>全球人口突破81亿，人口结构变化重塑经济格局。<br><br> | 来源：<code>https://www17ccom.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%</h3><br><p>固德威户用储能爆发，单季业绩预告超预期。<br><br> | 来源：<code>https://www17ccomqicao.com.cn
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>https://www17cwang.com.cn
+</code></p><br><br><h3>抽水蓄能电站规划，抽水蓄能板块走强</h3><br><p>油气增储上产政策，油气设备板块集体上涨。<br><br> | 来源：<code>https://www91com.com.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>白酒批价连续上涨，高端白酒板块盈利弹性释放。<br><br> | 来源：<code>https://www91comvn.cn
+</code></p><br><br><h3>大模型在文创领域应用，AI生成剧本、音乐成行业常态</h3><br><p>隆基绿能全球化布局：光伏龙头规避贸易壁垒的路径解析。<br><br> | 来源：<code>https://www91ncn.cn
+</code></p><br><br><h3>阳光电源研发投入：逆变器龙头持续保持技术领先的原因</h3><br><p>光伏行业产能置换政策落地，落后产能出清标的异动。<br><br> | 来源：<code>https://www91ncn.com.cn
+</code></p><br><br><h3>全国快递包装绿色转型推进，可降解材料使用率达85%</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://www91ncom.cn
+</code></p><br><br><h3>头部券商到访家电出海龙头，海外自主品牌占比突破40%</h3><br><p>全国水土流失治理面积年度完成6万平方公里，生态修复提速。<br><br> | 来源：<code>https://www91ncom.com.cn
+</code></p><br><br><h3>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径</h3><br><p>医美监管政策优化，医美消费标的全线拉升。<br><br> | 来源：<code>https://www91ncomcn.com.cn
+</code></p><br><br><h3>地方国资战略入股氢能燃料电池标的，助力商用车推广落地</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>https://www91ncomtanhua.com.cn
+</code></p><br><br><h3>先导智能跳空高开6.1%，锂电设备海外订单爆发</h3><br><p>江铃汽车异动拉升4.2%，轻卡新能源化加速。<br><br> | 来源：<code>https://www91wang.cn
+</code></p><br><br><h3>中芯国际行业格局分析：半导体制造国产替代的核心路径</h3><br><p>美联储降息周期开启，黄金珠宝板块迎来趋势性行情。<br><br> | 来源：<code>https://xiai-yepu.com.cn
+</code></p><br><br><h3>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒</h3><br><p>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护。<br><br> | 来源：<code>https://xiangjiao-manhua.com.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://xiangjiao-shipin.cn
+</code></p><br><br><h3>全国智慧健身器材普及至社区，运动数据实时上传健康平台</h3><br><p>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入。<br><br> | 来源：<code>https://xiangjiao-shipin.com.cn
+</code></p><br><br><h3>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>https://xiangjiao-shipinxiazai.com.cn
+</code></p><br><br><h3>甘肃建投涨超3.0%，一带一路西北基建项目推进</h3><br><p>百亿私募组团调研碳化硅企业，车规级器件量产线投产。<br><br> | 来源：<code>https://xiangjiao-zh.com.cn
+</code></p><br><br><h3>稀土永磁政策红利：行业供需格局优化下的投资机会</h3><br><p>天际股份锂电材料业务：传统化工企业的转型成长逻辑。<br><br> | 来源：<code>https://xiangjiaovideos.cn
+</code></p><br><br><h3>紫光国微异动拉升5.6%，特种芯片需求持续高增</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>https://xiangshuichun.org.cn
