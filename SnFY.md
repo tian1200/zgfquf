@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分28秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中际旭创客户优势：全球云厂商的深度绑定合作关系</h3><br><p>AI大模型企业启动申购，ToB付费转化率超行业平均水平。<br><br> | 来源：<code>https://shipin91.cn
+</code></p><br><br><h3>以色列经济逐步复苏，高科技产业重回增长轨道</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>https://shipinchengren.cn
+</code></p><br><br><h3>全国机动车国六b标准全面实施，新车排放污染大幅降低</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>https://shipinhuanggua.cn
+</code></p><br><br><h3>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>https://shipinmogu.com.cn
+</code></p><br><br><h3>建筑节能改造政策，绿色建筑板块集体上涨</h3><br><p>北方稀土行业地位：稀土全产业链龙头的政策红利。<br><br> | 来源：<code>https://shipinxiangjiao.cn
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>宇通客车海外出口翻倍，前三季度业绩预增超50%。<br><br> | 来源：<code>https://shixiongashixiong.com.cn
+</code></p><br><br><h3>中国男子足球队U23亚洲杯闯入四强，获得巴黎奥运资格</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>https://shoujihuangyou.com.cn
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好</h3><br><p>猪肉价格触底反弹，生猪养殖标的集体走强。<br><br> | 来源：<code>https://shuiguopaijieshuozaixianguankan.com.cn
+</code></p><br><br><h3>CBA联赛总决赛收视率创新高，本土球员表现亮眼</h3><br><p>全国居民人均住房建筑面积达42平方米，居住条件持续改善。<br><br> | 来源：<code>https://shuimitao-shipin.com.cn
+</code></p><br><br><h3>锦浪科技涨超7.0%，组串式逆变器出口高增</h3><br><p>海大集团饲料技术优势：水产饲料龙头的研发壁垒。<br><br> | 来源：<code>https://shuimitaowangzhan.com.cn
+</code></p><br><br><h3>全国青少年冰雪赛事覆盖南方城市，冰雪运动南展西扩</h3><br><p>药明康德海外订单爆发，前三季度业绩预增超60%。<br><br> | 来源：<code>https://shuixian-zhibo.com.cn
+</code></p><br><br><h3>宁德时代单日大涨6.2%，动力电池赛道迎来集体反弹</h3><br><p>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高。<br><br> | 来源：<code>https://shunudonghua.com.cn
+</code></p><br><br><h3>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>https://si-hu.com.cn
+</code></p><br><br><h3>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发</h3><br><p>建筑光伏一体化政策，BIPV标的全线拉升。<br><br> | 来源：<code>https://si-huyingyuan.com.cn
+</code></p><br><br><h3>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>https://si-huzaixianguankan.com.cn
+</code></p><br><br><h3>中国曲棍球队亚运会夺冠，集体球类项目多点开花</h3><br><p>全球教育科技市场规模突破4000亿美元，线上教育持续普及。<br><br> | 来源：<code>https://sibada-daren-ban-mantianxing-xingchen.com.cn
+</code></p><br><br><h3>平高电气特高压开关技术：输配电设备龙头的国产替代</h3><br><p>北向资金大幅增持比亚迪，AH股同步获外资加仓。<br><br> | 来源：<code>https://sigua-shipin.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>央行下调MLF利率10个基点，引导市场利率下行。<br><br> | 来源：<code>https://siguavideos.cn
+</code></p><br><br><h3>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期</h3><br><p>核电新项目审批重启，核电产业链标的全线拉升。<br><br> | 来源：<code>https://siji-she.org.cn
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增。<br><br> | 来源：<code>https://sijipianku.org.cn
