@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备。<br><br> | 来源：<code>https://luotiyishu.com.cn
+</code></p><br><br><h3>多地发放亿元文旅消费券，直接带动消费超30亿</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://luoyoushe.com.cn
+</code></p><br><br><h3>中国中铁一带一路订单落地，单季业绩预告超预期</h3><br><p>日本央行结束负利率政策，日元汇率回升至130关口。<br><br> | 来源：<code>https://m-jinmantiantang.com.cn
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>https://m-mitaoshipin.com.cn
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>降准释放资金定向支持基建，基建板块迎来流动性利好。<br><br> | 来源：<code>https://m-mogushipin.com.cn
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>https://madou-chuanmei.com.cn
+</code></p><br><br><h3>正邦科技放量上涨4.5%，债务重组进展顺利</h3><br><p>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张。<br><br> | 来源：<code>https://madou-cm-chuanmei-zaixian-gaoqing.com.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>https://madou-shipin.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>https://madouchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>AI手语翻译大模型上线，助力千万听障人士沟通无障碍。<br><br> | 来源：<code>https://madouseman.com.cn
+</code></p><br><br><h3>2026年全球经济增速达3.2%，实现温和复苏稳步增长</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>https://madoushipin.cn
+</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>中国船舶涨超4.5%，造船行业订单持续饱满。<br><br> | 来源：<code>https://majiang-diannao-ban-zaixian-wan.com.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>https://majiang-hu-le-moniqi.com.cn
+</code></p><br><br><h3>山东"三孔"景区暑期接待游客超200万人次，传统文化游升温</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>https://majiang-hu-le.com.cn
+</code></p><br><br><h3>伊利股份产品矩阵：全品类乳制品的市场覆盖优势</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>https://majiang-hule-17w.com
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张。<br><br> | 来源：<code>https://majiang-youxi-zaixian-wan.com.cn
+</code></p><br><br><h3>三一重工突破半年线，中期趋势逐步转强</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>https://majiang-zaixian-wan-mianfei-wangye-ban.com.cn
+</code></p><br><br><h3>千禾味业零添加差异化路线：调味品赛道的突围逻辑</h3><br><p>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升。<br><br> | 来源：<code>https://majiang-zaixian-wan.com.cn
+</code></p><br><br><h3>科大讯飞教育赛道优势：AI+教育的商业化落地领先性</h3><br><p>赣锋锂业技术储备：固态电池商业化的领先优势。<br><br> | 来源：<code>https://mama-depengyouzaixianguankan.com.cn
+</code></p><br><br><h3>全国马拉松赛事上半年举办超500场，参赛人次突破600万</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>https://mama-zhudong-suo-wen-erzi-de-xinlijibing.com.cn
