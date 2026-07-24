@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>赣粤高速涨超2.3%，江西区域车流量稳步提升</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://gongce-by-zhu-xiang-bi-qu-ge-zuixin-zhangjie.com.cn
+</code></p><br><br><h3>长城汽车坦克系列放量，单季业绩预告超预期</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>https://goutouluoli.com.cn
+</code></p><br><br><h3>国内大模型产业联盟成立，联合攻关核心技术短板</h3><br><p>新宙邦电解液业务优势：锂电电解液龙头的盈利稳定性。<br><br> | 来源：<code>https://goutouluolishipin.com.cn
+</code></p><br><br><h3>国内AI服务器出货量上半年同比增长120%，产业链全面爆发</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>https://gpian.net.cn
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏。<br><br> | 来源：<code>https://guess-worldcup-win.com
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>东方财富放量大涨，券商板块异动激活市场人气。<br><br> | 来源：<code>https://guiruhougong.com.cn
+</code></p><br><br><h3>全国红树林面积增至3万公顷，成为海洋生态保护标杆</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://guo-mo-bai-lu.com.cn
+</code></p><br><br><h3>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一</h3><br><p>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练。<br><br> | 来源：<code>https://guochan-chengren-dianying.com.cn
+</code></p><br><br><h3>黄金价格创历史新高，黄金珠宝板块盈利弹性释放</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://guochan-chuanmei.com.cn
+</code></p><br><br><h3>金融大模型赋能投研，AI研报生成效率提升5倍</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>https://guochan-jingpin-shipin.com.cn
+</code></p><br><br><h3>中国花游队世锦赛集体项目夺冠，实现金牌零的突破</h3><br><p>全国攀岩联赛覆盖20城，攀岩运动成年轻人新宠。<br><br> | 来源：<code>https://guochan-shipin.com.cn
+</code></p><br><br><h3>济南趵突泉暑期“趵突腾空”景观持续，日均客流超10万</h3><br><p>中俄双边贸易额上半年突破1200亿美元，创历史新高。<br><br> | 来源：<code>https://guochan-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>https://guochan-yiqu.com.cn
+</code></p><br><br><h3>紫金矿业资源储备优势：黄金铜价上行周期的业绩弹性</h3><br><p>派能科技户用储能电池技术：全球户用储能龙头的壁垒。<br><br> | 来源：<code>https://guochan-yiquerqu.com.cn
+</code></p><br><br><h3>哈尔滨冰雪旅游提前预热，暑期冰雪乐园订单同比增长80%</h3><br><p>国内大模型人才缺口破百万，AI相关专业毕业生供不应求。<br><br> | 来源：<code>https://guochan-zaixian-guankan.com.cn
+</code></p><br><br><h3>亿纬锂能海外布局：规避贸易壁垒的产能建设逻辑</h3><br><p>多地出台支持民营经济新政，破除市场准入隐性壁垒。<br><br> | 来源：<code>https://guochan-zaixian.com.cn
+</code></p><br><br><h3>保险资管扎堆调研CRO龙头，创新药管线临床数据披露</h3><br><p>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破。<br><br> | 来源：<code>https://guochan-zaixianguankan.com.cn
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>养老金新进AI芯片设计标的，布局大模型推理芯片赛道。<br><br> | 来源：<code>https://guochan-zipai.com.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https://guochanchengren.com.cn
+</code></p><br><br><h3>大秦铁路煤炭运输量回升，前三季度业绩预增超20%</h3><br><p>国内大模型集中落地，AI办公标的迎来估值修复。<br><br> | 来源：<code>https://guochanchuanmei.com.cn
