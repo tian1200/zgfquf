@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升</h3><br><p>全国农业面源污染治理成效显著，化肥使用量连续11年下降。<br><br> | 来源：<code>https://cn-188-sports.com.cn
+</code></p><br><br><h3>长安汽车涨停封板，深蓝系列车型销量破万</h3><br><p>全球区块链产业规模突破万亿美元，Web3.0应用落地加速。<br><br> | 来源：<code>https://cn-2026worldcup-buy.com
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://cn-2026worldcup-official.com
+</code></p><br><br><h3>全球人工智能产业规模突破5万亿美元，中美占据主导地位</h3><br><p>海外资管组团调研光伏逆变器标的，海外市占率突破30%。<br><br> | 来源：<code>https://cn-9170-jinsha.com
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>氢能产业中长期规划，氢能源全板块集体上涨。<br><br> | 来源：<code>https://cn-ab-tiyu.com.cn
+</code></p><br><br><h3>全国城市餐厨垃圾处理能力突破10万吨/日，资源化利用</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://cn-bandao-sports.com.cn
+</code></p><br><br><h3>社保基金现身存储模组龙头，AI存储产品出货量超预期</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>https://cn-bb-tiyu.com.cn
+</code></p><br><br><h3>全国马拉松赛事上半年举办超500场，参赛人次突破600万</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>https://cn-biyi-sports.com.cn
+</code></p><br><br><h3>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨</h3><br><p>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复。<br><br> | 来源：<code>https://cn-btiyu-web.com.cn
+</code></p><br><br><h3>全国煤化工行业低碳改造完成，碳排放强度下降20%</h3><br><p>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩。<br><br> | 来源：<code>https://cn-chengrenmanhua.com.cn
+</code></p><br><br><h3>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%</h3><br><p>全国老字号品牌超万家，国潮复兴带动传统产业转型升级。<br><br> | 来源：<code>https://cn-haijiaoshequ.com.cn
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>全国古籍保护工程完成，超3000万册古籍得到妥善修复。<br><br> | 来源：<code>https://cn-haohaidong.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧</h3><br><p>泸州老窖国窖批价上行，单季业绩预告超预期。<br><br> | 来源：<code>https://cn-jb-tiyu-web.com.cn
+</code></p><br><br><h3>种业振兴行动方案落地，种业标的全线异动</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https://cn-jiabosports.com.cn
+</code></p><br><br><h3>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次</h3><br><p>长安汽车新能源盈利转正，单季净利润同比增200%。<br><br> | 来源：<code>https://cn-kaiyun-esports.com.cn
+</code></p><br><br><h3>央行下调再贷款再贴现利率，小微和三农融资成本下行</h3><br><p>中际旭创再创阶段新高，趋势加速下的持仓策略。<br><br> | 来源：<code>https://cn-ls-tiyu.com.cn
+</code></p><br><br><h3>中国中冶放量上涨2.9%，新能源冶金订单爆发</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>https://cn-ob-tiyu.com.cn
+</code></p><br><br><h3>定向降准支持县域金融机构，乡村振兴板块迎来利好</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>https://cn-pb-tiyu.com.cn
+</code></p><br><br><h3>北方稀土稀土量价齐升，前三季度业绩预增超50%</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https://cn-pipi-yingyuan.com.cn
+</code></p><br><br><h3>乳制品价格小幅上调，乳业龙头盈利边际改善</h3><br><p>锦浪科技涨超7.0%，组串式逆变器出口高增。<br><br> | 来源：<code>https://cn-pipiyingyuan.com.cn
