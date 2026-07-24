@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国产纪录片全网播放量突破150亿次，自然人文题材广受好评</h3><br><p>电力辅助服务市场扩容，储能运营标的全线异动。<br><br> | 来源：<code>https://huanleguzuixindizhifabuye.cn
+</code></p><br><br><h3>美联储连续第二次降息，北向资金单日净流入超百亿</h3><br><p>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖。<br><br> | 来源：<code>https://huimeili.com.cn
+</code></p><br><br><h3>三亚暑期酒店预订量同比增长35%，滨海度假持续火热</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>https://huoyingbenzi.com.cn
+</code></p><br><br><h3>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣</h3><br><p>AI生成广告内容占比超70%，营销行业效率大幅提升。<br><br> | 来源：<code>https://huoyingcc.com.cn
+</code></p><br><br><h3>外资机构集中调研存储芯片龙头，海外订单情况成焦点</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>https://huoyinghuang.com.cn
+</code></p><br><br><h3>全球智能穿戴市场规模突破2000亿美元，消费电子回暖</h3><br><p>东方雨虹企稳反弹4.2%，地产链需求边际改善。<br><br> | 来源：<code>https://huoyingrenzhe-tongren.com.cn
+</code></p><br><br><h3>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破</h3><br><p>东方雨虹企稳反弹4.2%，地产链需求边际改善。<br><br> | 来源：<code>https://huoyingrenzhe-tongrendongman.com.cn
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>房地产市场新政落地，多地首套房贷款利率降至3.2%以下。<br><br> | 来源：<code>https://huoyingrenzhebenzimanhua.com.cn
+</code></p><br><br><h3>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://huoyingrenzhechutianbenzi.com.cn
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>中国网球选手首次夺得大满贯单打冠军，创造历史突破。<br><br> | 来源：<code>https://huoyingrenzheh.com.cn
+</code></p><br><br><h3>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://huoyingrenzhehuangbenzi.com.cn
+</code></p><br><br><h3>一带一路订单释放：中字头基建的估值重塑空间解析</h3><br><p>中药配方颗粒政策放开，中药板块集体走强。<br><br> | 来源：<code>https://huoyingrenzhehuangyou.com.cn
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>天邦食品减亏路径：养殖行业周期底部的经营优化逻辑。<br><br> | 来源：<code>https://huoyingrenzhetongrenbenzi.com.cn
+</code></p><br><br><h3>温氏股份放量上涨4.2%，养殖业务盈利持续修复</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>https://huoyingrenzhetongrenyouxi.com.cn
+</code></p><br><br><h3>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析</h3><br><p>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列。<br><br> | 来源：<code>https://huoyingtong.com.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>https://huoyingtongren18guankanguoyuban.com.cn
+</code></p><br><br><h3>温氏股份管理优化：养殖行业底部的经营效率提升逻辑</h3><br><p>中国围棋AI算法登顶世界，人工智能助力棋类运动发展。<br><br> | 来源：<code>https://huoyingwang.com.cn
+</code></p><br><br><h3>东北振兴新举措出台，推动老工业基地产业转型升级</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>https://huoyingxigua.com.cn
+</code></p><br><br><h3>中国与海湾国家合作深化，能源、金融多领域协同发展</h3><br><p>安徽建工涨超3.6%，长三角基建订单持续落地。<br><br> | 来源：<code>https://huwailuchu.com.cn
+</code></p><br><br><h3>中药配方颗粒政策放开，中药板块集体走强</h3><br><p>全国保障性住房建设进度过半，年内新开工超300万套。<br><br> | 来源：<code>https://jcomic.com.cn
