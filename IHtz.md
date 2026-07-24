@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分05秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。<br><br> | 来源：<code>https://yuan-zhi-kong.com.cn
+</code></p><br><br><h3>美的集团海外收入高增，前三季度业绩预增超25%</h3><br><p>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进。<br><br> | 来源：<code>https://yuanfende.com.cn
+</code></p><br><br><h3>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://yuankongzhi.com.cn
+</code></p><br><br><h3>浙江建投区域基建优势：浙江基建龙头的区域资源壁垒</h3><br><p>调味品行业标准升级，调味品龙头板块走强。<br><br> | 来源：<code>https://yuanshen-benzi.com.cn
+</code></p><br><br><h3>招商银行放量上涨3.0%，净息差边际企稳</h3><br><p>北向资金大额扫货新宙邦7000万，电解液龙头获外资流入。<br><br> | 来源：<code>https://yuanshenbenziwang.com.cn
+</code></p><br><br><h3>全球可再生能源投资首次超过化石能源，能源转型拐点到来</h3><br><p>全国高血压患者管理人数突破1亿人，规范管理率达90%。<br><br> | 来源：<code>https://yue-pao.cn
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升。<br><br> | 来源：<code>https://yun-sports-pro.com.cn
+</code></p><br><br><h3>电竞入亚成绩亮眼，电竞游戏产业链标的拉升</h3><br><p>赣锋锂业突破20日线，短期反弹窗口开启。<br><br> | 来源：<code>https://yunkai-sports-pro.com.cn
+</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>京东言犀大模型供应链版上线，助力电商降本增效。<br><br> | 来源：<code>https://yunuxinjing.com.cn
+</code></p><br><br><h3>城中村改造专项政策，城中村改造标的全线异动</h3><br><p>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益。<br><br> | 来源：<code>https://yuputuan.com.cn
+</code></p><br><br><h3>全国儿童青少年近视率同比下降2%，视力防控成效显现</h3><br><p>醋产品价格上调6%，食醋板块盈利改善。<br><br> | 来源：<code>https://yuputuanzhi.com.cn
+</code></p><br><br><h3>机构席位大额买入拓普集团9200万，零部件龙头获长线布局</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>https://zaixian-boduoyejieyi.com.cn
+</code></p><br><br><h3>瑞典经济走出负增长，科技产业拉动复苏</h3><br><p>全国消费促进月活动启动，覆盖超百万商家拉动暑期消费。<br><br> | 来源：<code>https://zaixian-guankan.com.cn
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>https://zaixian-majiangpai.com.cn
+</code></p><br><br><h3>中秋国庆旅游数据超预期，旅游酒店板块异动</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>https://zaixian91.cn
+</code></p><br><br><h3>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励</h3><br><p>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿。<br><br> | 来源：<code>https://zaixiancheng.com.cn
+</code></p><br><br><h3>全国食品安全抽检合格率达99.8%，从源头保障国民健康</h3><br><p>调味品行业标准升级，调味品龙头板块走强。<br><br> | 来源：<code>https://zaixiandou.cn
+</code></p><br><br><h3>科达利结构件精密制造：锂电池结构件龙头的全球份额</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>https://zaixianguankan-zh.com.cn
+</code></p><br><br><h3>被动元器件价格集体上涨，电子板块盈利边际改善</h3><br><p>国内首款7nm芯片量产，先进制程产业链异动。<br><br> | 来源：<code>https://zaixiangui.com.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>卓胜微射频芯片积累：消费电子赛道的国产替代机会。<br><br> | 来源：<code>https://zaixianhuangyou.com.cn
