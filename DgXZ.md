@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分03秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>赛力斯单日大涨8.3%，问界新车型销量引爆市场。<br><br> | 来源：<code>https://vip-188tiyu-web.com.cn
+</code></p><br><br><h3>保险资管扎堆调研CRO龙头，创新药管线临床数据披露</h3><br><p>醋产品价格上调6%，食醋板块盈利改善。<br><br> | 来源：<code>https://vip-9170-jinsha.com
+</code></p><br><br><h3>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>https://vip-bw-tiyu.com.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>https://vip-fb-tiyu.com.cn
+</code></p><br><br><h3>美联储连续第二次降息，北向资金单日净流入超百亿</h3><br><p>全国研究生考试报名人数首次回落，就业导向成为报考主流。<br><br> | 来源：<code>https://vip-feifan-sports.com.cn
+</code></p><br><br><h3>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道</h3><br><p>社保基金现身半导体材料龙头，国产替代率突破70%。<br><br> | 来源：<code>https://vip-jb-tiyu.com.cn
+</code></p><br><br><h3>教育改革与人才发展（100条）</h3><br><p>宝钢股份高端钢铁布局：国内钢铁龙头的产品结构升级。<br><br> | 来源：<code>https://vip-jiabo-sports.com.cn
+</code></p><br><br><h3>长城汽车异动拉升5.9%，坦克系列销量持续高增</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>https://vip-ky-gaming.com.cn
+</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>国产光刻机交付突破，半导体设备板块全线大涨。<br><br> | 来源：<code>https://vip-lbj-tiyu.com.cn
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>东方雨虹建材需求回暖，前三季度业绩预增超25%。<br><br> | 来源：<code>https://vip-ledong-sports.com.cn
+</code></p><br><br><h3>印度经济增速达7.2%，成为全球增长最快主要经济体</h3><br><p>多地出台支持民营经济新政，破除市场准入隐性壁垒。<br><br> | 来源：<code>https://vip-mile-sports.com.cn
+</code></p><br><br><h3>天齐锂业涨超5.8%，锂矿自给率优势持续凸显</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>https://vip-qianyi-sports.com.cn
+</code></p><br><br><h3>存款利率连续下调，居民配置权益资产意愿持续增强</h3><br><p>高股息板块持续受宠：银行、保险、煤炭的配置价值分析。<br><br> | 来源：<code>https://vip-saba-sports.com.cn
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>宝钢股份板材盈利修复，前三季度业绩预增超30%。<br><br> | 来源：<code>https://vip-tiankong-tiyu.com.cn
+</code></p><br><br><h3>百亿私募组团调研生物育种标的，玉米种子推广面积超预期</h3><br><p>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧。<br><br> | 来源：<code>https://vip-weidesports.com.cn
+</code></p><br><br><h3>公募基金发行回暖，基金重仓标的集体拉升</h3><br><p>量子计算原型机新突破，量子科技板块集体拉升。<br><br> | 来源：<code>https://vip-worldcup-predict.com
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>科大讯飞高位震荡，分歧阶段的关键位与风控思路。<br><br> | 来源：<code>https://vip-worldcup-rukou.com
+</code></p><br><br><h3>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>https://vip-yy-sports.com.cn
+</code></p><br><br><h3>北方稀土行业地位：稀土全产业链龙头的政策红利</h3><br><p>全国青少年足球联赛参赛队伍破万支，覆盖百万青少年球员。<br><br> | 来源：<code>https://vk-nao-jiaoxin.com.cn
+</code></p><br><br><h3>泸州老窖放量上涨4.4%，国窖1573批价稳步上行</h3><br><p>存量房贷利率集中下调，居民消费能力有望边际改善。<br><br> | 来源：<code>https://w-ww91com.com.cn
