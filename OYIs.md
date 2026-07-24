@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美联储降息预期升温，全球权益资产联动走强</h3><br><p>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位。<br><br> | 来源：<code>https://17ccc.com.cn
+</code></p><br><br><h3>上半年全国文旅消费总额突破3万亿元，同比增长22%</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>https://17cccc.com.cn
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>全国中医药服务覆盖所有社区，中医馆成为基层医疗标配。<br><br> | 来源：<code>https://17ccccyiqicao.com.cn
+</code></p><br><br><h3>抽水蓄能电站规划，抽水蓄能板块走强</h3><br><p>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏。<br><br> | 来源：<code>https://17ccchigua.com.cn
+</code></p><br><br><h3>招商银行净息差企稳，前三季度业绩预增超15%</h3><br><p>呼吸道疾病高发，儿科医药板块集体上涨。<br><br> | 来源：<code>https://17cccmeiridasai.com.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://17cchigua.com.cn
+</code></p><br><br><h3>春节档票房创历史新高，影视传媒板块集体走强</h3><br><p>煤层气开发利用政策，煤层气标的全线拉升。<br><br> | 来源：<code>https://17ccn.com.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://17ccom.com.cn
+</code></p><br><br><h3>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧</h3><br><p>中国台球选手世锦赛夺冠，斯诺克运动中国力量持续崛起。<br><br> | 来源：<code>https://17ccomchigua.com.cn
+</code></p><br><br><h3>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升</h3><br><p>量子计算原型机新突破，量子科技板块集体拉升。<br><br> | 来源：<code>https://17ccomgithub.com.cn
+</code></p><br><br><h3>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%</h3><br><p>国产历史剧细节考究，多部作品成为全网热议文化现象。<br><br> | 来源：<code>https://17ccomqicao.com.cn
+</code></p><br><br><h3>新疆交建放量上涨4.1%，新疆区域基建投资持续升温</h3><br><p>固德威放量上涨7.2%，户用储能业务爆发式增长。<br><br> | 来源：<code>https://17ccomrukou.com.cn
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>宝钢股份高端钢铁布局：国内钢铁龙头的产品结构升级。<br><br> | 来源：<code>https://17ccomyiqicao.com.cn
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>https://17ccomyiqicaozaixian.com.cn
+</code></p><br><br><h3>国电南瑞电网自动化高增，单季业绩预告超预期</h3><br><p>涪陵榨菜异动拉升3.8%，产品提价传导顺利。<br><br> | 来源：<code>https://17ccwang.com.cn
+</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>https://17ccyiqicao.com.cn
+</code></p><br><br><h3>全球区块链产业规模突破万亿美元，Web3.0应用落地加速</h3><br><p>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进。<br><br> | 来源：<code>https://17cczaixianguankan.com.cn
+</code></p><br><br><h3>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡</h3><br><p>全国地下水超采综合治理成效显著，水位回升超2米。<br><br> | 来源：<code>https://17cmeiridasai.com.cn
+</code></p><br><br><h3>高标准农田建设规划，农田基建板块集体上涨</h3><br><p>全国碳排放强度同比下降4.2%，提前完成"十四五"减排目标。<br><br> | 来源：<code>https://17cmocqicaotangxinzaixiankan.com.cn
+</code></p><br><br><h3>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓</h3><br><p>贵州茅台站稳年线，趋势反转信号逐步确认。<br><br> | 来源：<code>https://17cmwang.com.cn
