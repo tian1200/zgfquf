@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国产光刻机交付突破，半导体设备板块全线大涨</h3><br><p>中国男子跳高选手跳出2米40，打破尘封28年全国纪录。<br><br> | 来源：<code>https://new-aqd.org.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓。<br><br> | 来源：<code>https://new-aqdlt.org.cn
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>https://new-baicai-web.com
+</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://new-baihe.com.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险+银行+投资的协同优势</h3><br><p>国内大模型行业应用案例破百万，覆盖千行百业。<br><br> | 来源：<code>https://new-baijiang.net.cn
+</code></p><br><br><h3>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼</h3><br><p>全国房地产开发投资降幅收窄，市场预期逐步企稳。<br><br> | 来源：<code>https://new-baleshipin.cn
+</code></p><br><br><h3>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>https://new-biwei-sports.com.cn
+</code></p><br><br><h3>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场</h3><br><p>招商公路平台化布局：全国公路网络的整合成长逻辑。<br><br> | 来源：<code>https://new-bowan-sports.com.cn
+</code></p><br><br><h3>云南泼水节暑期活动重启，单日参与游客突破50万人次</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>https://new-caike-official.com
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>中国平安综合金融版图：保险龙头的转型进展与空间。<br><br> | 来源：<code>https://new-caoliu.cn
+</code></p><br><br><h3>新宙邦涨超4.5%，电解液盈利预期改善</h3><br><p>国产动画剧集全网播放量突破300亿，传统文化元素成爆款密码。<br><br> | 来源：<code>https://new-caoliushequ.cn
+</code></p><br><br><h3>全国医保目录新增126种新药，涵盖多款罕见病特效药</h3><br><p>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高。<br><br> | 来源：<code>https://new-chengrenwangzhan.com.cn
+</code></p><br><br><h3>外资单日扫货药明康德18亿，CXO赛道获外资集中流入</h3><br><p>国内主题乐园暑期营收同比增长75%，亲子游成核心主力。<br><br> | 来源：<code>https://new-fb-sports.com.cn
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>https://new-feifansports.com.cn
+</code></p><br><br><h3>通威股份异动拉升5.2%，渔光互补项目持续落地</h3><br><p>河南卫视中国节日系列节目全网播放量突破200亿次。<br><br> | 来源：<code>https://new-fulidaohang.com.cn
+</code></p><br><br><h3>英国经济止跌回升，二季度GDP同比增长0.6%</h3><br><p>中国中车异动拉升，一带一路订单持续释放。<br><br> | 来源：<code>https://new-fuliji.com.cn
+</code></p><br><br><h3>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化</h3><br><p>北向资金大幅增持比亚迪，AH股同步获外资加仓。<br><br> | 来源：<code>https://new-haijiaoshequ.cn
+</code></p><br><br><h3>存量房贷利率集中下调，居民消费能力有望边际改善</h3><br><p>理想汽车涨超8.5%，L系列车型月销破4万。<br><br> | 来源：<code>https://new-hanxiucao.cn
+</code></p><br><br><h3>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%</h3><br><p>东方雨虹企稳反弹4.2%，地产链需求边际改善。<br><br> | 来源：<code>https://new-hongtao.com.cn
+</code></p><br><br><h3>保利发展涨超3.9%，央企地产销售数据回暖</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>https://new-hongtaoyingshi.com.cn
