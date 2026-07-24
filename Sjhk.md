@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>头部机构组团到访核电设备龙头，新机组中标订单披露</h3><br><p>基金公司集体到访消费电子龙头，苹果新品备货量曝光。<br><br> | 来源：<code>https://zh-loli.com.cn
+</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>北方稀土异动拉升5.4%，稀土产品价格反弹。<br><br> | 来源：<code>https://zh-lolicon.com.cn
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>全国亚洲象种群数量突破350只，人象和谐共生格局形成。<br><br> | 来源：<code>https://zh-lolita.com.cn
+</code></p><br><br><h3>平遥古城暑期推出实景演出，夜间场次上座率超100%</h3><br><p>国产音乐综艺全网播放量突破200亿，原创音乐人才涌现。<br><br> | 来源：<code>https://zh-luanlun.com.cn
+</code></p><br><br><h3>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发</h3><br><p>全国文旅市场监管加强，查处超千家违规经营旅行社。<br><br> | 来源：<code>https://zh-luolita.com.cn
+</code></p><br><br><h3>暑期电影票房突破120亿，国产影片包揽票房前十</h3><br><p>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定。<br><br> | 来源：<code>https://zh-luotimeinu.com.cn
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放。<br><br> | 来源：<code>https://zh-madoushipin.com.cn
+</code></p><br><br><h3>风控永远放在第一位：先保住本金，再谈盈利空间</h3><br><p>上半年全国居民消费支出同比增长7.3%，服务消费占比提升。<br><br> | 来源：<code>https://zh-meiri-dasai.com.cn
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>https://zh-mianfeidianying.com.cn
+</code></p><br><br><h3>中国中车海外订单落地，单季业绩预告超预期</h3><br><p>全国居民平均每日运动时长超1小时，运动习惯逐步养成。<br><br> | 来源：<code>https://zh-mitao-yingshi.com.cn
+</code></p><br><br><h3>中国中铁一带一路订单落地，单季业绩预告超预期</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>https://zh-mitaochuanmei.com.cn
+</code></p><br><br><h3>运达股份风电整机盈利修复：行业底部的经营优化逻辑</h3><br><p>公募基金发行回暖，基金重仓标的集体拉升。<br><br> | 来源：<code>https://zh-mitaoshipin.com.cn
+</code></p><br><br><h3>万科A异动拉升，地产链反弹的关键位与风控思路</h3><br><p>恒力石化异动拉升3.8%，炼化行业盈利边际改善。<br><br> | 来源：<code>https://zh-mitaotv.com.cn
+</code></p><br><br><h3>全国候鸟栖息地保护网络建成，每年迁徙候鸟超千万只</h3><br><p>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破。<br><br> | 来源：<code>https://zh-mitaowangzhan.com.cn
+</code></p><br><br><h3>风电行业景气度回升：整机、零部件的盈利改善逻辑</h3><br><p>保险资管扎堆调研养老产业标的，养老社区入住率数据披露。<br><br> | 来源：<code>https://zh-mitaoyingshi.com.cn
+</code></p><br><br><h3>北向资金大额增持五粮液，白酒龙头外资持仓环比提升</h3><br><p>露营经济持续升温，全国露营地数量突破4万个。<br><br> | 来源：<code>https://zh-mitaozaixian.com.cn
+</code></p><br><br><h3>全球生物医药市场规模突破1.8万亿美元，创新药研发加速</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>https://zh-miya.com.cn
+</code></p><br><br><h3>藏羚羊种群数量突破30万只，从濒危物种恢复至无危</h3><br><p>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生。<br><br> | 来源：<code>https://zh-mogushipin.com.cn
+</code></p><br><br><h3>中超联赛第20轮，上海申花6-0大胜对手稳居积分榜榜首</h3><br><p>CBA总决赛辽宁队4-1夺冠，实现三连冠建立王朝。<br><br> | 来源：<code>https://zh-nan-tong-wang.com.cn
+</code></p><br><br><h3>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>https://zh-ntr.com.cn
