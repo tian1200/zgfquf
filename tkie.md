@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>葛洲坝异动拉升3.4%，水电工程业务持续增长</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>https://jingmantiantangmanhua.com.cn
+</code></p><br><br><h3>高管团队集体增持工业AI龙头，合计增持金额超2.3亿</h3><br><p>隆基绿能跳空高开，光伏赛道资金回流迹象明显。<br><br> | 来源：<code>https://jingpin-jiujiu.com.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>中国中车涨超3.3%，海外轨交订单持续落地。<br><br> | 来源：<code>https://jingpin-shipin.com.cn
+</code></p><br><br><h3>大模型在教育测评领域应用，自动批改作文准确率超教师</h3><br><p>锰价上涨8%，锰酸锂材料板块迎来行情。<br><br> | 来源：<code>https://jingpin-yi-qu.com.cn
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>苏州马拉松开跑，3万跑者体验江南赛道赛事口碑持续提升。<br><br> | 来源：<code>https://jingpin-yiqu.com.cn
+</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>全国研学基地超万家，覆盖所有地级市满足学生实践需求。<br><br> | 来源：<code>https://jingpin-yiquerqu.com.cn
+</code></p><br><br><h3>游资顶级席位打板亨通光电5400万，海缆标的获热炒</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>https://jingpindashi.com.cn
+</code></p><br><br><h3>新宙邦电解液业务优势：锂电电解液龙头的盈利稳定性</h3><br><p>全球区块链产业规模突破万亿美元，Web3.0应用落地加速。<br><br> | 来源：<code>https://jingpinjiujiujiu.com.cn
+</code></p><br><br><h3>福建高速异动拉升2.2%，海西地区车流量回暖</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>https://jingpinshipin.com.cn
+</code></p><br><br><h3>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性</h3><br><p>中东产油国延长减产协议，国际油价维持温和上涨态势。<br><br> | 来源：<code>https://jingpinwang.com.cn
+</code></p><br><br><h3>加拿大经济保持增长，能源和科技产业双驱动</h3><br><p>爱尔兰经济保持稳定增长，高科技产业优势凸显。<br><br> | 来源：<code>https://jingpinyi-qu.com.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>https://jingpinyi-querqu.com.cn
+</code></p><br><br><h3>全国石漠化土地面积持续缩减，治理率超60%</h3><br><p>深股通席位单日买入金龙汽车4300万，客车标的获增持。<br><br> | 来源：<code>https://jingpinyiquerqu.com.cn
+</code></p><br><br><h3>国际地缘与全球经济（100条）</h3><br><p>全国塑料污染治理专项行动推进，一次性塑料制品减量30%。<br><br> | 来源：<code>https://jingxiangjulia.net.cn
+</code></p><br><br><h3>华友钴业异动拉升5.3%，新能源金属需求回暖</h3><br><p>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展。<br><br> | 来源：<code>https://jinman-tiantang.com.cn
+</code></p><br><br><h3>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍</h3><br><p>西湖暑期游客量突破600万人次，免费景区持续释放民生红利。<br><br> | 来源：<code>https://jinmandaowang.com.cn
+</code></p><br><br><h3>百亿私募组团调研6G通信企业，技术试验进度超市场预期</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://jinmantiantangbenzi.com.cn
+</code></p><br><br><h3>广州马拉松开跑，参赛选手破3万全马完赛率创新高</h3><br><p>全国羽毛球锦标赛落幕，00后小将包揽三项冠军。<br><br> | 来源：<code>https://jinmantiantangfabuye.com.cn
+</code></p><br><br><h3>中国平安权重护盘，大金融板块托底A股指数</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>https://jinmantiantangfangwen.com.cn
+</code></p><br><br><h3>天际股份放量上涨4.3%，锂电材料业务盈利修复</h3><br><p>网络安全政策升级，网安板块集体上涨。<br><br> | 来源：<code>https://jinmantiantangjmcomic.com.cn
