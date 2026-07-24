@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国城市污水处理率达98%，污泥无害化处理率超90%</h3><br><p>产业资本连续增持储能温控龙头，产业链上下游协同布局。<br><br> | 来源：<code>https://chong-tian.com.cn
+</code></p><br><br><h3>宝钢股份板材盈利修复，前三季度业绩预增超30%</h3><br><p>藏羚羊种群数量突破30万只，从濒危物种恢复至无危。<br><br> | 来源：<code>https://chongshengluolidao.com.cn
+</code></p><br><br><h3>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练</h3><br><p>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率。<br><br> | 来源：<code>https://chuanmei-zaixianguankan.com.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://chuanmei91.com.cn
+</code></p><br><br><h3>企业贷款利率创历史新低，制造业投资意愿有望回升</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>https://chuanmeimadou.cn
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>央行下调MLF利率10个基点，引导市场利率下行。<br><br> | 来源：<code>https://chuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>全球碳交易市场规模突破5000亿美元，助力双碳目标</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>https://chuniaoapp.cn
+</code></p><br><br><h3>医疗器械集采结果温和，医疗设备标的全线异动</h3><br><p>海参价格单月上涨18%，海产养殖龙头盈利提升。<br><br> | 来源：<code>https://chutianbenzi.com.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>航发动力技术壁垒：航空发动机国产替代的核心路径。<br><br> | 来源：<code>https://chuyindao.com.cn
+</code></p><br><br><h3>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团</h3><br><p>稀土永磁政策红利：行业供需格局优化下的投资机会。<br><br> | 来源：<code>https://clshequ.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>https://clsq.cn
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景。<br><br> | 来源：<code>https://club91.cn
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://cn-188-sports.com.cn
+</code></p><br><br><h3>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光</h3><br><p>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发。<br><br> | 来源：<code>https://cn-2026worldcup-buy.com
+</code></p><br><br><h3>碳排放权交易市场扩容，碳交易标的全线异动</h3><br><p>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期。<br><br> | 来源：<code>https://cn-2026worldcup-official.com
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍。<br><br> | 来源：<code>https://cn-9170-jinsha.com
+</code></p><br><br><h3>美联储降息25BP符合市场预期，全球股市迎来普涨行情</h3><br><p>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量。<br><br> | 来源：<code>https://cn-ab-tiyu.com.cn
+</code></p><br><br><h3>世界贸易组织第13届部长级会议召开，达成多项多边协议</h3><br><p>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升。<br><br> | 来源：<code>https://cn-bandao-sports.com.cn
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发。<br><br> | 来源：<code>https://cn-bb-tiyu.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>全国绿色供应链示范企业超千家，带动上下游产业低碳转型。<br><br> | 来源：<code>https://cn-biyi-sports.com.cn
