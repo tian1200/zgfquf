@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>安防大模型落地全国，异常事件识别响应速度提升至毫秒级</h3><br><p>车规级芯片国产替代加速，汽车半导体板块走强。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒</h3><br><p>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>绿电交易规模翻倍，绿电运营板块集体上涨。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>京沪高铁涨超2.9%，暑运客流数据超预期</h3><br><p>全国亚洲象种群数量突破350只，人象和谐共生格局形成。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>新疆交建新疆基建项目爆发，单季业绩预告超预期</h3><br><p>工业大模型落地万座工厂，生产效率平均提升30%。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>工业金属集体上涨，有色板块迎来全面行情催化</h3><br><p>央行表态保持流动性合理充裕，后续政策工具储备充足。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>赛力斯华为车型销量破10万，单季业绩减亏超预期</h3><br><p>国产科幻小说海外获奖，中国想象力走向全球读者。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>科大讯飞AI业务盈利兑现，单季净利润同比增120%</h3><br><p>国内大模型行业应用案例破百万，覆盖千行百业。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>正邦科技债务重组：养殖企业困境反转的案例解析</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓</h3><br><p>全国燃煤机组超低排放改造全面完成，煤电清洁化水平全球第一。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>故宫博物院暑期门票秒空，日均接待游客突破8万人次</h3><br><p>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>中国建筑涨超2.8%，基建订单持续饱满</h3><br><p>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>固态电池试点线投产，固态电池产业链集体异动</h3><br><p>全国餐饮营收上半年突破4万亿，夜间餐饮占比超60%。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>美联储降息后美债收益率下行，外资回流中国权益市场</h3><br><p>中国中车涨超3.3%，海外轨交订单持续落地。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>中非合作论坛新举措落地，千个合作项目集中启动。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破</h3><br><p>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>一带一路十周年峰会召开，中字头基建标的拉升</h3><br><p>海大集团涨超3.5%，饲料业务市占率稳步提升。<br><br> | 来源：<code>www.trqgzc.com
