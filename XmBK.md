@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>中国中车全球轨交布局：一带一路下的海外订单增长逻辑。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>多地发放消费券超200亿元，撬动社会消费超千亿元</h3><br><p>恒瑞医药异动拉升5.6%，创新药新品贡献增量。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>上半年全国集成电路产量同比增长18%，产业链自主可控推进</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>锂电设备海外订单爆发：产业链业绩弹性排序</h3><br><p>上半年全国集成电路产量同比增长18%，产业链自主可控推进。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>洋河梦之蓝批价上调4%，白酒全产业链盈利优化</h3><br><p>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>中国平安寿险新业务价值大增，业绩预告超预期。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>美联储降息后全球流动性宽松，成长板块估值抬升</h3><br><p>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>跨境支付龙头登陆港股，海外结算规模年增速超80%</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>新增开户数环比大增，互联网券商板块全线走强。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>全球碳交易市场规模突破5000亿美元，助力双碳目标</h3><br><p>赣锋锂业突破20日线，短期反弹窗口开启。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官</h3><br><p>中国电竞战队S13总决赛夺冠，LPL赛区连续三年捧杯。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升</h3><br><p>全国全民健身日活动启动，全国超万场赛事覆盖千万群众。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>别被短期波动洗下车：核心资产的价值需要时间兑现</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>全国登山健身大会覆盖百座名山，参与人次破500万</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>国产悬疑小说出海热销，海外读者追捧中国推理故事。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>中远海控行业周期复盘：集运行业的供需格局长期演变。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>药明康德全球竞争力研究：CXO赛道的长期成长逻辑</h3><br><p>全球6G研发进入关键阶段，多国联合推进技术标准制定。<br><br> | 来源：<code>www.kayhaerland.com
