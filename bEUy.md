@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>头部机构组团到访创新药龙头，核心管线临床三期数据披露</h3><br><p>多地推出夜间文旅补贴，商户夜间经营成本下降30%。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>慢就是快：在高确定性标的上持仓，远比追热点赚得稳</h3><br><p>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>全国居民平均每日运动时长超1小时，运动习惯逐步养成</h3><br><p>餐饮消费促进政策，餐饮连锁标的全线异动。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>头部机构组团到访中药创新药标的，医保谈判结果超预期</h3><br><p>国家文化数字化战略落地，文化资源线上共享覆盖全民。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>万华化学MDI技术优势：化工龙头的全产业链协同价值</h3><br><p>革命老区振兴发展新政策落地，缩小区域发展差距。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%</h3><br><p>先导智能跳空高开6.1%，锂电设备海外订单爆发。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓</h3><br><p>机构资金集中买入特变电工4900万，新能源龙头获抱团。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧</h3><br><p>中俄双边贸易额上半年突破1200亿美元，创历史新高。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北向资金单日买入福耀玻璃7200万，玻璃龙头获外资持续流入</h3><br><p>三一重工海外收入翻倍，单季业绩预告超预期。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>招商银行零售银行优势：国内零售银行龙头的经营质量</h3><br><p>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>产业基金大手笔增持国产EDA企业，助力核心技术研发突破</h3><br><p>润和软件涨超7.2%，鸿蒙生态业务落地加速。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>水利工程建设规划，水利基建板块走强。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全面降准0.5个百分点，银行信贷投放能力大幅提升</h3><br><p>汽车出口数据亮眼：自主车企、零部件的业绩增量分析。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>房地产融资白名单出台，优质房企板块走强</h3><br><p>国产都市剧收视领跑，聚焦当代年轻人生活引发广泛讨论。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>明阳智能涨超4.8%，大兆瓦风机份额持续提升</h3><br><p>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>极端暴雨灾害预警，水利基建标的全线上涨</h3><br><p>紫金矿业创阶段新高3.2%，铜金产量持续超预期。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>定向降息支持制造业高端化，工业母机板块获定向利好。<br><br> | 来源：<code>www.thepodala.com
