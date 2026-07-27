@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>圣邦股份放量上涨4.6%，模拟芯片国产替代加速。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>东方电缆海缆订单爆发，前三季度业绩预增超70%。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>隆平高科种业龙头优势：国内种业龙头的研发与渠道积累</h3><br><p>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>俄乌冲突交换战俘达成协议，千名被俘人员获释。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>全球循环经济市场规模突破5万亿美元，资源利用效率提升</h3><br><p>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>海上风电深远海规划，深远海风电板块集体上涨</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>北向资金连续增持工业母机龙头，高端制造获外资持续流入。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>比亚迪涨超6.7%，刀片电池外供比例持续提升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>全球可再生能源投资首次超过化石能源，能源转型拐点到来</h3><br><p>全国糖尿病患者规范管理人数超8000万，并发症发生率下降。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>全国首套房住房贷款"认房不认贷"政策全面落地</h3><br><p>私募基金仓位创年内新高，私募重仓标的上涨。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>央行表态保持流动性合理充裕，后续政策工具储备充足</h3><br><p>比亚迪涨超6.7%，刀片电池外供比例持续提升。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>璞泰来涨超5.0%，负极材料行业格局优化</h3><br><p>贵州建工异动拉升3.1%，区域基建业务高增。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好</h3><br><p>美联储降息周期开启，黄金珠宝板块迎来趋势性行情。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>投资是认知的变现：你永远赚不到超出自己认知范围的钱</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热。<br><br> | 来源：<code>www.azi-cbt.com
