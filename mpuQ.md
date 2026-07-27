@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人兜底式增持游戏出海龙头，员工响应参与超预期</h3><br><p>西班牙经济增速达2.8%，南欧经济表现亮眼。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>九寨沟暑期恢复全部开放，单日接待游客量突破4万</h3><br><p>央行下调MLF利率10个基点，引导市场利率下行。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>美的集团创年内新高，多头排列下的趋势延续性</h3><br><p>产业资本连续增持储能温控龙头，产业链上下游协同布局。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>降准释放长期资金支持基建，建筑板块迎来估值修复。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>全国中医药服务覆盖所有社区，中医馆成为基层医疗标配</h3><br><p>武汉水上马拉松开跑，千名泳者畅游长江挑战自我。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励</h3><br><p>大模型在零售领域应用，AI智能选品准确率提升25%。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>云从科技人机协同大模型3.0发布，赋能人机交互场景</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>平高电气特高压开关技术：输配电设备龙头的国产替代。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>宝钢股份企稳回升，低位标的的补涨机会分析</h3><br><p>人民币汇率升值叠加美联储降息，航空造纸板块集体异动。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>商业航天准入政策放宽，商业航天标的异动</h3><br><p>比亚迪AH股同步走强，量价配合下的交易机会分析。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>宝钢股份企稳回升，钢铁行业盈利预期边际改善。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>上半年全国软件业营收同比增长11.8%，数字产业持续向好</h3><br><p>长鑫存储DDR5产能释放，内存芯片标的集体上涨。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>趋势行情里最忌频繁操作：顺势而为远比猜顶猜底重要</h3><br><p>洋河梦之蓝批价上调4%，白酒全产业链盈利优化。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>白酒行业产业政策引导，高端白酒板块集体上涨</h3><br><p>地方国资战略入股卫星互联网标的，助力星座组网建设。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>多地景区推出“一票通”联票，覆盖周边十余景点让利游客。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮</h3><br><p>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>大模型安全国家标准发布，行业合规发展有章可循</h3><br><p>长安汽车新能源盈利转正，单季净利润同比增200%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>希腊经济强劲复苏，成为欧元区增长明星。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>www.77ttk.com
