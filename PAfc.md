@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球债务规模突破320万亿美元，新兴市场债务风险可控</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>https://caoliuyaoqingma.cn
+</code></p><br><br><h3>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台</h3><br><p>丽江暑期民宿入住率达95%，云南文旅市场持续回暖。<br><br> | 来源：<code>https://caoliuzuixin.cn
+</code></p><br><br><h3>外资持续流入万科A，地产龙头外资持仓占比突破2%</h3><br><p>哈尔滨冰雪旅游提前预热，暑期冰雪乐园订单同比增长80%。<br><br> | 来源：<code>https://caoliuzuixindizhi.cn
+</code></p><br><br><h3>中国男子举重队世锦赛打破5项世界纪录，统治力依旧</h3><br><p>小鹏汽车异动拉升9.2%，新车型交付量超预期。<br><br> | 来源：<code>https://caomei-shipin-se.com.cn
+</code></p><br><br><h3>字节跳动豆包大模型企业版发布，百万企业开启AI办公升级</h3><br><p>全球人工智能产业规模突破5万亿美元，中美占据主导地位。<br><br> | 来源：<code>https://caomei-shipin.cn
+</code></p><br><br><h3>陕西历史博物馆暑期预约一票难求，单日接待量突破4万人次</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>https://caomei-shipin.com.cn
+</code></p><br><br><h3>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新</h3><br><p>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空。<br><br> | 来源：<code>https://caomei-shipinapp.cn
+</code></p><br><br><h3>外资机构集中调研跨境支付标的，海外结算规模环比大增</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https://caomeidaohang.cn
+</code></p><br><br><h3>需求侧响应政策落地，电力营销板块集体上涨</h3><br><p>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复。<br><br> | 来源：<code>https://caomeishipinzaixianbofang.cn
+</code></p><br><br><h3>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%</h3><br><p>天际股份放量上涨4.3%，锂电材料业务盈利修复。<br><br> | 来源：<code>https://caomeishipinzaixianguankan.cn
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>东方财富互联网券商生态：流量变现的长期成长逻辑。<br><br> | 来源：<code>https://caomeishipinzaixianguankanmianfei.cn
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>https://caomuxiaoshuo.cn
+</code></p><br><br><h3>乳制品质量升级政策，乳业龙头标的全线异动</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>https://caoshequdizhiyidizhier.cn
+</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>中印经贸合作回暖，双边贸易额同比增长15%。<br><br> | 来源：<code>https://cc91.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>铜价创半年新高，铜业上市公司盈利迎来边际改善。<br><br> | 来源：<code>https://chaopengzaixian.com.cn
+</code></p><br><br><h3>全国野生东北豹种群数量突破100只，生物链完整性恢复</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>https://cheng-renwangzhan.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>企业债券融资利率大幅下行，直接融资占比进一步提升。<br><br> | 来源：<code>https://cheng91.cn
+</code></p><br><br><h3>国内大模型行业应用案例破百万，覆盖千行百业</h3><br><p>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍。<br><br> | 来源：<code>https://chengnian91cc.cn
+</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>东方电气氢能布局：能源装备龙头的第二成长曲线解析。<br><br> | 来源：<code>https://chengren-18-jin.com.cn
+</code></p><br><br><h3>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://chengren-dianying.com.cn
