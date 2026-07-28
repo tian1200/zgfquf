@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分41秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>天津推出“夜津城”活动，相声演出夜间场次一票难求</h3><br><p>全国全民阅读指数达72分，人均年阅读纸质书超8本。<br><br> | 来源：<code>https://bai-si.com.cn
+</code></p><br><br><h3>社保基金新进生物育种标的，布局农业科技长期成长</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>https://baicaiba-bocai-bbs.com
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>稀土价格政策收储后上涨12%，稀土永磁板块集体异动。<br><br> | 来源：<code>https://baihe-hui.com.cn
+</code></p><br><br><h3>全球跨境旅游人次上半年突破7亿，旅游业全面复苏</h3><br><p>定向降息支持绿色电力，绿电运营板块获定向利好。<br><br> | 来源：<code>https://baihubi.org.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>https://baihuluoli.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>陕西煤业高股息兑现，单季业绩预告超预期。<br><br> | 来源：<code>https://baihuziwei.com.cn
+</code></p><br><br><h3>房地产融资白名单出台，优质房企板块走强</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https://baisijk.com.cn
+</code></p><br><br><h3>德国工业产出环比增长1.2%，制造业显现复苏迹象</h3><br><p>石大胜华溶剂技术优势：锂电溶剂细分赛道的龙头价值。<br><br> | 来源：<code>https://baisijkbaihu.com.cn
+</code></p><br><br><h3>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>https://baisijurumeinu.com.cn
+</code></p><br><br><h3>特变电工多晶硅布局：新能源全产业链的协同成长逻辑</h3><br><p>社保基金现身工业AI龙头调研，行业渗透率数据首次公开。<br><br> | 来源：<code>https://baisiluoli.com.cn
+</code></p><br><br><h3>上半年全国软件业营收同比增长11.8%，数字产业持续向好</h3><br><p>西安兵马俑暑期日均客流超7万，智慧分流系统提升游览体验。<br><br> | 来源：<code>https://baleshipinwuwuzaixianguankan.cn
+</code></p><br><br><h3>天顺风能风电塔架布局：风电零部件龙头的全球份额</h3><br><p>国内政策性降息落地，宽信用进程加速推进。<br><br> | 来源：<code>https://bandao-sports-pro.com.cn
+</code></p><br><br><h3>人工智能与大模型应用（100条）</h3><br><p>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位。<br><br> | 来源：<code>https://baoliao-wang.cn
+</code></p><br><br><h3>万科A地产行业格局：龙头房企的抗风险能力与复苏空间</h3><br><p>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍。<br><br> | 来源：<code>https://baoyu-shipin.com.cn
+</code></p><br><br><h3>国产综艺节目海外版权输出量同比增长60%</h3><br><p>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户。<br><br> | 来源：<code>https://baoyu-tv.com.cn
+</code></p><br><br><h3>机构+北向合力买入紫光国微1.5亿，军工芯片标的获资金布局</h3><br><p>九寨沟暑期恢复全部开放，单日接待游客量突破4万。<br><br> | 来源：<code>https://baoyu-wangzhan.com.cn
+</code></p><br><br><h3>武汉水上马拉松开跑，千名泳者畅游长江挑战自我</h3><br><p>OpenAI发布多模态大模型，AI应用板块集体异动。<br><br> | 来源：<code>https://baoyuguanwang.com.cn
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>https://baoyuhezi.org.cn
+</code></p><br><br><h3>北向资金举牌广告营销龙头，AI营销高增获外资持续流入</h3><br><p>东方财富互联网券商优势：流量变现的长期成长空间。<br><br> | 来源：<code>https://baoyushipin.com.cn
+</code></p><br><br><h3>海螺水泥涨超3.7%，基建投资增速回暖带动需求</h3><br><p>鸭肉价格上涨12%，水禽养殖板块迎来行情。<br><br> | 来源：<code>https://baoyutv.com.cn
