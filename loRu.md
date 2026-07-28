@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强</h3><br><p>上合组织峰会召开，新增3个成员国组织规模进一步扩大。<br><br> | 来源：<code>https://laosijiyuming.org.cn
+</code></p><br><br><h3>氢能示范城市群政策落地，氢能源板块全线走强</h3><br><p>沪深交易所降费，券商经纪业务标的集体上涨。<br><br> | 来源：<code>https://leplayqiumi.com.cn
+</code></p><br><br><h3>端侧AI应用爆发，手机AI功能月活用户破10亿</h3><br><p>全国首套房住房贷款"认房不认贷"政策全面落地。<br><br> | 来源：<code>https://leyusaishi.com.cn
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>https://li-zong-rui.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持光模块企业，合计投入超10亿</h3><br><p>华为Mate70销量破千万，消费电子产业链全线异动。<br><br> | 来源：<code>https://liangnuyibei.com.cn
+</code></p><br><br><h3>降准降息组合利好地产链，建材板块迎来估值修复</h3><br><p>全国步行街改造升级完成，200条示范街夜间营收占比超70%。<br><br> | 来源：<code>https://lianzuwangzhan.com.cn
+</code></p><br><br><h3>养老金现身创新器械标的，海外FDA获批进度超预期</h3><br><p>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍。<br><br> | 来源：<code>https://liaoheishequ.com.cn
+</code></p><br><br><h3>中国船舶全球竞争力：造船行业龙头的订单与盈利展望</h3><br><p>沪股通席位单日买入金风科技1亿，风电龙头获外资增持。<br><br> | 来源：<code>https://liboqiubao.com.cn
+</code></p><br><br><h3>全国垃圾分类覆盖率达92%，资源化利用率提升至38%</h3><br><p>农药价格开启新一轮涨价，农化板块盈利弹性释放。<br><br> | 来源：<code>https://lidongmanfan.com.cn
+</code></p><br><br><h3>全面降准叠加定向降息，宽货币向宽信用传导加速</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>https://lifandongmanmanhua.org.cn
+</code></p><br><br><h3>招商银行净息差企稳，前三季度业绩预增超15%</h3><br><p>东方财富用户粘性：互联网金融平台的流量沉淀逻辑。<br><br> | 来源：<code>https://lifanzaixianmianfei.com.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列。<br><br> | 来源：<code>https://limandongman.com.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>定向降息支持制造业高端化，工业母机板块获定向利好。<br><br> | 来源：<code>https://lishuanger.com.cn
+</code></p><br><br><h3>上汽集团放量上涨3.5%，新能源汽车出口超预期</h3><br><p>沪硅产业涨超5.8%，12英寸硅片产能持续释放。<br><br> | 来源：<code>https://liuhe-baodian.com.cn
+</code></p><br><br><h3>中国铁建异动拉升2.7%，海外项目落地加速</h3><br><p>东方电缆异动拉升5.2%，海缆订单持续落地。<br><br> | 来源：<code>https://liuhecai-wangzhan.com.cn
+</code></p><br><br><h3>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩</h3><br><p>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力。<br><br> | 来源：<code>https://liuhecai-ziliao.com.cn
+</code></p><br><br><h3>房贷利率下调后二手房成交回暖，家居家电需求回升</h3><br><p>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东。<br><br> | 来源：<code>https://liujiaoqin.com.cn
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>三一重工海外收入翻倍，单季业绩预告超预期。<br><br> | 来源：<code>https://liulanqi91.cn
+</code></p><br><br><h3>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护</h3><br><p>天然气价格季节性上涨15%，燃气运营板块迎来行情。<br><br> | 来源：<code>https://liumang-shipin.com.cn
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>国内大模型性能榜单更新，国产模型多项指标超越国际竞品。<br><br> | 来源：<code>https://login-kaiyun-pro.com.cn
